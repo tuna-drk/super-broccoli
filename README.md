@@ -1,1 +1,1 @@
-# super-broccoli
+ım tuna i am studying c# basic programming and oop object-oriented application, then I will take my backend expertise and implement my projects as a junior backend developer, my main profession is health management, but I turned to backend software because I want to change my profession briefly my story
